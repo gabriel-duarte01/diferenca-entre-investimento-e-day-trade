@@ -1,0 +1,1 @@
+# diferenca-entre-investimento-e-day-trade
